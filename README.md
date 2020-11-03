@@ -1,1 +1,1 @@
-# [tvbarata.com](tvbarata.com)
+# [tvbarata.com](https://tvbarata.com)
